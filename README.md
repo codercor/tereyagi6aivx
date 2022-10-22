@@ -1,1 +1,0 @@
-# tereyagi6aivx
